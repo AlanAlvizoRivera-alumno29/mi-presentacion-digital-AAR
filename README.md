@@ -2,7 +2,8 @@
 nombre: Alan Alvizo Rivera 
 
 3 cosas que me gustan:
-1.- me encanta jugar futbol es una de mi pacion mas grande he incluso 
+
+me encanta jugar futbol es una de mi pacion mas grande he incluso 
 quisiera que fuera mi profecion.
 
 2.- la verdad es que me encanta ganar dinero y gastarlo por ejemplo ahora lo 
